@@ -2,9 +2,9 @@
 ==
 ------
 ## :star: :point_right: 【大陆最新可用地址】 ：
-## https://947ax.xyz
-## https://235ax.xyz
-## https://620ax.xyz
+## https://349ax.xyz
+## https://230ax.xyz
+## https://835ax.xyz
 
 
 :star: :point_right: 【地址收藏】 ：https://521dizhi70.com

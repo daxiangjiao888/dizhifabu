@@ -2,12 +2,12 @@
 ==
 ------
 ## :star: :point_right: 【大陆最新可用地址】 ：
-## https://349ax.xyz
-## https://230ax.xyz
-## https://835ax.xyz
+## https://095ax.xyz
+## https://350ax.xyz
+## https://574ax.xyz
 
 
-:star: :point_right: 【地址收藏】 ：https://521dizhi70.com
+:star: :point_right: 【地址收藏】 ：https://521dizhi75.com
 ------
 :star: :point_right: 【海外地址】 ：https://iiav0.com
 ------

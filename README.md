@@ -2,12 +2,18 @@
 ==
 ------
 ## :star: :point_right: 【大陆最新可用地址】 ：
-## https://125ax.xyz
-## https://807ax.xyz
-## https://584ax.xyz
+## https://890ax.xyz
+## https://591ax.xyz
+## https://073ax.xyz
 
 
+<<<<<<< .mine
 :star: :point_right: 【地址收藏】 ：https://521dizhi75.com
+||||||| .r13033
+:star: :point_right: 【地址收藏】 ：https://521dizhi70.com
+=======
+:star: :point_right: 【地址收藏】 ：https://521dizhi77.com
+>>>>>>> .r13066
 ------
 :star: :point_right: 【海外地址】 ：https://iiav0.com
 ------

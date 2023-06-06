@@ -2,11 +2,11 @@
 ==
 ------
 ## :star: :point_right: 【大陆最新可用地址】 ：
-## https://480yz.xyz
-## https://251yz.xyz
-## https://760yz.xyz
-## https://902yz.xyz
-## https://618yz.xyz
+## https://246yz.xyz
+## https://832yz.xyz
+## https://659yz.xyz
+## https://963yz.xyz
+## https://367yz.xyz
 
 
 :star: :point_right: 【地址收藏】 ：https://xbdizhi12.com

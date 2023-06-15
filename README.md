@@ -2,11 +2,11 @@
 ==
 ------
 ## :star: :point_right: 【大陆最新可用地址】 ：
-## https://078yz.xyz
-## https://242yz.xyz
-## https://520yz.xyz
-## https://786yz.xyz
-## https://088yz.xyz
+## https://383yz.xyz
+## https://777yz.xyz
+## https://157yz.xyz
+## https://778yz.xyz
+## https://024yz.xyz
 
 
 :star: :point_right: 【地址收藏】 ：https://xbdizhi12.com

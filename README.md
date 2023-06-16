@@ -2,14 +2,14 @@
 ==
 ------
 ## :star: :point_right: 【大陆最新可用地址】 ：
-## https://383yz.xyz
-## https://777yz.xyz
-## https://157yz.xyz
-## https://778yz.xyz
-## https://024yz.xyz
+## https://168yz.xyz
+## https://847yz.xyz
+## https://518yz.xyz
+## https://268yz.xyz
+## https://305yz.xyz
 
 
-:star: :point_right: 【地址收藏】 ：https://xbdizhi12.com
+:star: :point_right: 【地址收藏】 ：https://xbdizhi18.com
 ------
 :star: :point_right: 【海外地址】 ：https://iiav0.com
 ------

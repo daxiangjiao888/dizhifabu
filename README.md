@@ -2,11 +2,11 @@
 ==
 ------
 ## :star: :point_right: 【大陆最新可用地址】 ：
-## https://993yz.xyz
-## https://037yz.xyz
-## https://407yz.xyz
-## https://392yz.xyz
-## https://908yz.xyz
+## https://695yz.xyz
+## https://639yz.xyz
+## https://160yz.xyz
+## https://283yz.xyz
+## https://079yz.xyz
 
 
 :star: :point_right: 【地址收藏】 ：https://xbdizhi18.com

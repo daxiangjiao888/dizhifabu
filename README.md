@@ -2,11 +2,11 @@
 ==
 ------
 ## :star: :point_right: 【大陆最新可用地址】 ：
-## https://430yz.xyz
-## https://490yz.xyz
-## https://805yz.xyz
-## https://ikun260.xyz
-## https://ikun863.xyz
+## https://ikun270.xyz
+## https://ikun878.xyz
+## https://ikun905.xyz
+## https://ikun609.xyz
+## https://ikun926.xyz
 
 
 :star: :point_right: 【地址收藏】 ：https://xbdizhi18.com

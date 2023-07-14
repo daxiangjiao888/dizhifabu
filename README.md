@@ -2,11 +2,11 @@
 ==
 ------
 ## :star: :point_right: 【大陆最新可用地址】 ：
-## https://ikun280.xyz
-## https://ikun708.xyz
-## https://ikun333.xyz
-## https://ikun678.xyz
-## https://ikun719.xyz
+## https://ikun236.xyz
+## https://ikun365.xyz
+## https://ikun773.xyz
+## https://ikun765.xyz
+## https://ikun353.xyz
 
 
 :star: :point_right: 【地址收藏】 ：https://xbdizhi33.com

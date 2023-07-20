@@ -2,14 +2,14 @@
 ==
 ------
 ## :star: :point_right: 【大陆最新可用地址】 ：
-## https://ikun226.xyz
-## https://ikun723.xyz
-## https://ikun650.xyz
-## https://ikun291.xyz
-## https://ikun973.xyz
+## https://ikun213.xyz
+## https://ikun372.xyz
+## https://ikun981.xyz
+## https://ikun968.xyz
+## https://ikun168.xyz
 
 
-:star: :point_right: 【地址收藏】 ：https://xbdizhi33.com
+:star: :point_right: 【地址收藏】 ：https://xbdizhi66.com
 ------
 :star: :point_right: 【海外地址】 ：https://iiav0.com
 ------

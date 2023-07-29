@@ -2,10 +2,10 @@
 ==
 ------
 ## :star: :point_right: 【大陆最新可用地址】 ：
-## https://jb971.xyz
-## https://jb673.xyz
-## https://jb769.xyz
-## https://jb696.xyz
+## https://jb260.xyz
+## https://jb165.xyz
+## https://jb976.xyz
+## https://jb586.xyz
 
 
 :star: :point_right: 【地址收藏】 ：https://xbdizhi66.com

@@ -2,13 +2,13 @@
 ==
 ------
 ## :star: :point_right: 【大陆最新可用地址】 ：
-## https://jb800.xyz
-## https://jb688.xyz
-## https://jb880.xyz
-## https://jb598.xyz
+## https://jb798.xyz
+## https://jb555.xyz
+## https://jb922.xyz
+## https://jb591.xyz
 
 
-:star: :point_right: 【地址收藏】 ：https://xbdizhi66.com
+:star: :point_right: 【地址收藏】 ：https://xbdizhi81.com
 ------
 :star: :point_right: 【海外地址】 ：https://iiav0.com
 ------

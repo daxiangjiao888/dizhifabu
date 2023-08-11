@@ -2,10 +2,11 @@
 ==
 ------
 ## :star: :point_right: 【大陆最新可用地址】 ：
-## https://jb119.xyz
-## https://jb391.xyz
-## https://jb527.xyz
-## https://jb195.xyz
+## https://jb727.xyz
+## https://jb603.xyz
+## https://jb513.xyz
+## https://jb725.xyz
+## https://jb583.xyz
 
 
 :star: :point_right: 【地址收藏】 ：https://xbdizhi81.com

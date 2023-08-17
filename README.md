@@ -2,14 +2,14 @@
 ==
 ------
 ## :star: :point_right: 【大陆最新可用地址】 ：
-## https://jb395.xyz
-## https://jb377.xyz
-## https://jb680.xyz
-## https://jb870.xyz
-## https://jb557.xyz
+## https://jb686.xyz
+## https://jb233.xyz
+## https://jb677.xyz
+## https://jb828.xyz
+## https://jb908.xyz
 
 
-:star: :point_right: 【地址收藏】 ：https://xbdizhi81.com
+:star: :point_right: 【地址收藏】 ：https://xbdizhi85.com
 ------
 :star: :point_right: 【海外地址】 ：https://iiav0.com
 ------

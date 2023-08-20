@@ -2,12 +2,12 @@
 ==
 ------
 ## :star: :point_right: 【大陆最新可用地址】 ：
-## https://jb893.xyz
-## https://jb961.xyz
-## https://jb579.xyz
-## https://jb653.xyz
-## https://jb380.xyz
-## https://jb131.xyz
+## https://jb720.xyz
+## https://jb133.xyz
+## https://jb136.xyz
+## https://jb656.xyz
+## https://jb218.xyz
+## https://jb227.xyz
 
 
 :star: :point_right: 【地址收藏】 ：https://xbdizhi85.com

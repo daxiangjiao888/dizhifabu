@@ -2,15 +2,15 @@
 ==
 ------
 ## :star: :point_right: 【大陆最新可用地址】 ：
-## https://jb877.xyz
-## https://jb909.xyz
-## https://jb912.xyz
-## https://jb709.xyz
-## https://jb928.xyz
-## https://jb792.xyz
-## https://jb161.xyz
-## https://jb923.xyz
-## https://jb761.xyz
+## https://jb930.xyz
+## https://jb532.xyz
+## https://jb732.xyz
+## https://jb797.xyz
+## https://jb191.xyz
+## https://jb760.xyz
+## https://jb171.xyz
+## https://jb311.xyz
+## https://jb127.xyz
 
 
 :star: :point_right: 【地址收藏】 ：https://xbdizhi85.com

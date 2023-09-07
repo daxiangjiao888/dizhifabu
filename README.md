@@ -2,10 +2,10 @@
 ==
 ------
 ## :star: :point_right: 【大陆最新可用地址】 ：
-## https://yzyz809.xyz
-## https://yzyz960.xyz
-## https://yzyz932.xyz
-## https://yzyz880.xyz
+## https://yzyz663.xyz
+## https://yzyz526.xyz
+## https://yzyz962.xyz
+## https://yzyz775.xyz
 
 
 :star: :point_right: 【地址收藏】 ：https://xbdizhi89.com

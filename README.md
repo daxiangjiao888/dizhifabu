@@ -2,13 +2,13 @@
 ==
 ------
 ## :star: :point_right: 【大陆最新可用地址】 ：
-## https://yyzz716.xyz
-## https://yyzz690.xyz
-## https://yyzz235.xyz
-## https://yyzz362.xyz
+## https://yyzz793.xyz
+## https://yyzz885.xyz
+## https://yyzz762.xyz
+## https://yyzz281.xyz
 
 
-:star: :point_right: 【地址收藏】 ：https://xbdizhi93.com
+:star: :point_right: 【地址收藏】 ：https://xbdizhi96.com
 ------
 :star: :point_right: 【海外地址】 ：https://iiav0.com
 ------

@@ -2,10 +2,10 @@
 ==
 ------
 ## :star: :point_right: 【大陆最新可用地址】 ：
-## https://yyzz270.xyz
-## https://66aa6.xyz
-## https://66pp8.xyz
-## https://66yy13.xyz
+## https://66ss16.xyz
+## https://66tt18.xyz
+## https://66ee26.xyz
+## https://66vv28.xyz
 
 
 :star: :point_right: 【地址收藏】 ：https://xbdizhi99.com

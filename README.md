@@ -2,10 +2,10 @@
 ==
 ------
 ## :star: :point_right: 【大陆最新可用地址】 ：
-## https://66ss16.xyz
-## https://66tt18.xyz
-## https://66ee26.xyz
-## https://66vv28.xyz
+## https://66pp66.xyz
+## https://66qq68.xyz
+## https://66mm69.xyz
+## https://66qq77.xyz
 
 
 :star: :point_right: 【地址收藏】 ：https://xbdizhi99.com

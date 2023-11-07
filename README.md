@@ -2,12 +2,9 @@
 ==
 ------
 ## :star: :point_right: 【大陆最新可用地址】 ：
-## https://66bb66.xyz
-## https://66tt68.xyz
-## https://66pp77.xyz
-## https://66nn81.xyz
-## https://66uu82.xyz
-## https://66bb83.xyz
+## https://66ss90.xyz
+## https://66dd92.xyz
+## https://66ss93.xyz
 
 
 :star: :point_right: 【地址收藏】 ：https://52dizhi13.com

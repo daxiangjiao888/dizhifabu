@@ -2,15 +2,15 @@
 ==
 ------
 ## :star: :point_right: 【大陆最新可用地址】 ：
-## https://800kpgg26.xyz
-## https://800kpff28.xyz
-## https://521qqgg90.xyz
-## https://800kphh55.xyz
-## https://521qqpp91.xyz
-## https://800kpcc58.xyz
+## https://521qquu93.xyz
+## https://800kpww68.xyz
+## https://521qqrr95.xyz
+## https://800kptt69.xyz
+## https://521qqnn96.xyz
+## https://800kppp77.xyz
 
 
-:star: :point_right: 【地址收藏】 ：https://52dizhi13.com
+:star: :point_right: 【地址收藏】 ：https://52dizhi28.com
 ------
 :star: :point_right: 【海外地址】 ：https://iiav0.com
 ------

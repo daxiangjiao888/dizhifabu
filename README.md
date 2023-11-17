@@ -2,12 +2,12 @@
 ==
 ------
 ## :star: :point_right: 【大陆最新可用地址】 ：
-## https://521qqcc98.xyz
-## https://800kpqq82.xyz
-## https://521qqhh99.xyz
-## https://800kpaa83.xyz
-## https://521qqkk6.xyz
-## https://800kpgg85.xyz
+## https://521qqtt13.xyz
+## https://800kpmm90.xyz
+## https://51kpbb13.com
+## https://521qqkk16.xyz
+## https://800kpee91.xyz
+## https://521qqqq18.xyz
 
 
 :star: :point_right: 【地址收藏】 ：https://52dizhi28.com

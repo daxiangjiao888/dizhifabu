@@ -2,12 +2,12 @@
 ==
 ------
 ## :star: :point_right: 【大陆最新可用地址】 ：
-## https://800kpkk68.xyz
-## https://800kphh69.xyz
-## https://800kpvv81.xyz
-## https://800kpff82.xyz
-## https://800kpzz83.xyz
-## https://51kpzz86.com
+## https://800kppp88.xyz
+## https://800kpss89.xyz
+## https://800kprr91.xyz
+## https://800kppp92.xyz
+## https://800kpzz93.xyz
+## https://800kpcc95.xyz
 
 
 :star: :point_right: 【地址收藏】 ：https://52dizhi58.com
@@ -23,3 +23,5 @@
 -
 
 :e-mail: __邮箱联系方式: 521av@mail.com （以上地址无法访问请发送任意内容获取最新地址）__
+
+海外网络永久看片地址:https://16kp.com

@@ -2,15 +2,15 @@
 ==
 ------
 ## :star: :point_right: 【大陆最新可用地址】 ：
-## https://91ss18vv.xyz
-## https://91ss26gg.xyz
-## https://91ss28cc.xyz
-## https://91ss33rr.xyz
-## https://91ss55mm.xyz
-## https://91ss58tt.xyz
+## https://91ss77nn.xyz
+## https://91ss81nn.xyz
+## https://91ss82dd.xyz
+## https://91ss83rr.xyz
+## https://91ss85cc.xyz
+## https://91ss86jj.xyz
 
 
-:star: :point_right: 【地址收藏】 ：https://52dizhi58.com
+:star: :point_right: 【地址收藏】 ：https://52dizhi69.com
 ------
 :star: :point_right: 【海外地址】 ：https://iiav0.com
 ------

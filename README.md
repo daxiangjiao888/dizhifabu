@@ -2,18 +2,18 @@
 ==
 ------
 ## :star: :point_right: 【大陆最新可用地址】 ：
-## https://91fby.ggaa770.xyz
-## https://91fby.kkpp887.xyz
-## https://91fby.ggaa770.work
-## https://91fby.wwkk330.com
-## https://91fby.ddqq886.xyz
-## https://91fby.rrqq775.xyz
+## https://91fby.kkpp887.work
+## https://91fby.aaee228.xyz
+## https://91fby.hhgg888.xyz
+## https://91fby.ddqq886.work
+## https://91fby.xxhh338.xyz
+## https://91fby.ppxx117.xyz
 
 
 紧急提醒！近期非法劫持跳转等活动频发
 如果点击网址进入后发现不是本站，请立即返回并选择此处的[【防劫持通道】](https://172.247.132.230:7003/)
 
-:star: :point_right: 【地址收藏】 ：https://52dizhi86.com
+:star: :point_right: 【地址收藏】 ：https://52dizhi90.com
 ------
 :star: :point_right: 【海外地址】 ：https://iiav0.com
 ------

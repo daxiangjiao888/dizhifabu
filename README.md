@@ -2,12 +2,12 @@
 ==
 ------
 ## :star: :point_right: 【大陆最新可用地址】 ：
-## https://91fby.bbqq5500.link
-## https://91fby.yyxx1155.xyz
-## https://91fby.zzzz3333.xyz
-## https://91fby.ddff6655.link
-## https://91fby.hhss2255.xyz
-## https://91fby.hhaa8855.xyz
+## https://91fby.qqaa7755.link
+## https://91fby.kkyy1199.xyz
+## https://91fby.uuaa8855.com
+## https://91fby.eeuu9988.xyz
+## https://91fby.eeaa1188.link
+## https://91fby.eeqq1122.xyz
 
 
 紧急提醒！近期非法劫持跳转等活动频发
@@ -27,4 +27,4 @@
 
 :e-mail: __邮箱联系方式: 521av@mail.com （以上地址无法访问请发送任意内容获取最新地址）__
 
-海外网络永久看片地址:https://16kp.com
+海外网络永久看片地址:https://91JQ.com

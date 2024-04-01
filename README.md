@@ -2,12 +2,12 @@
 ==
 ------
 ## :star: :point_right: 【大陆最新可用地址】 ：
-## https://ddff8888.link
 ## https://hhqq2266.xyz
 ## https://xxcc2211.link
 ## https://qqpp3377.link
 ## https://mmuu3399.xyz
 ## https://mmcc7766.link
+## https://jjkk2288.link
 
 
 紧急提醒！近期非法劫持跳转等活动频发

@@ -2,12 +2,12 @@
 ==
 ------
 ## :star: :point_right: 【大陆最新可用地址】 ：
-## https://ttss2299.link
-## https://bbrr7766.link
-## https://zzmm6633.xyz
-## https://uucc7788.link
-## https://kkcc5588.link
-## https://mmff5511.xyz
+## https://ddff8888.link
+## https://hhqq2266.xyz
+## https://xxcc2211.link
+## https://qqpp3377.link
+## https://mmuu3399.xyz
+## https://mmcc7766.link
 
 
 紧急提醒！近期非法劫持跳转等活动频发

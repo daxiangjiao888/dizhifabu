@@ -2,12 +2,12 @@
 ==
 ------
 ## :star: :point_right: 【大陆最新可用地址】 ：
-## https://ggzz1155.link
-## https://jjyy9900.xyz
-## https://ffbb9955.link
-## https://jjpp7700.link
-## https://ffxx1122.xyz
-## https://jjbb8888.link
+## https://zzee7755.com
+## https://ccaa6655.link
+## https://ddzz7711.link
+## https://ddyy1166.xyz
+## https://qqhh3333.link
+## https://bbdd8866.link
 
 
 紧急提醒！近期非法劫持跳转等活动频发

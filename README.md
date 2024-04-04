@@ -2,12 +2,12 @@
 ==
 ------
 ## :star: :point_right: 【大陆最新可用地址】 ：
-## https://ddyy1166.xyz
-## https://qqhh3333.link
-## https://bbdd8866.link
-## https://mmxx6699.link
-## https://pptt8800.xyz
-## https://rrtt8833.link
+## https://ccuu2288.link
+## https://yyrr8800.link
+## https://ssaa1122.link
+## https://zzkk6611.link
+## https://jjqq2277.link
+## https://yygg3333.xyz
 
 
 紧急提醒！近期非法劫持跳转等活动频发

@@ -4,10 +4,10 @@
 ## :star: :point_right: 【大陆最新可用地址】 ：
 ## https://kkpp8811.link
 ## https://ttyy6611.link
-## https://bbkk8888.link
 ## https://ppzz3333.link
 ## https://mmbb3388.link
 ## https://jjpp7700.com
+## https://bbjj1166.link
 
 
 紧急提醒！近期非法劫持跳转等活动频发

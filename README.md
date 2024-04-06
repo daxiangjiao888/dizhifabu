@@ -2,12 +2,12 @@
 ==
 ------
 ## :star: :point_right: 【大陆最新可用地址】 ：
-## https://kkpp8811.link
-## https://ttyy6611.link
-## https://ppzz3333.link
-## https://mmbb3388.link
-## https://jjpp7700.com
-## https://bbjj1166.link
+## https://ppjj3300.link
+## https://yyqq9955.link
+## https://zzaa5522.link
+## https://aayy7788.link
+## https://mmhh3333.link
+## https://kkqq7755.com
 
 
 紧急提醒！近期非法劫持跳转等活动频发

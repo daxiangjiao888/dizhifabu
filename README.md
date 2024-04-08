@@ -2,12 +2,12 @@
 ==
 ------
 ## :star: :point_right: 【大陆最新可用地址】 ：
-## https://ccmm6688.link
-## https://ccqq5533.xyz
-## https://aazz3311.link
-## https://ggqq6611.link
-## https://uukk3399.link
-## https://ttjj6600.link
+## https://eejj6688.xyz
+## https://ccgg1122.link
+## https://mmyy5566.link
+## https://mmpp8811.link
+## https://mmjj8800.link
+## https://aass5533.link
 
 
 紧急提醒！近期非法劫持跳转等活动频发

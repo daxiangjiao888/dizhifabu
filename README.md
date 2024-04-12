@@ -2,12 +2,12 @@
 ==
 ------
 ## :star: :point_right: 【大陆最新可用地址】 ：
-## https://ddkk6677.link
-## https://rrtt8833.com
-## https://ppmm9911.link
-## https://bbcc2255.link
-## https://ccbb2255.xyz
-## https://91jq00.xyz
+## https://91jq06.xyz
+## https://91jq07.xyz
+## https://91jq08.xyz
+## https://91jq09.xyz
+## https://91jq10.xyz
+## https://91jq11.xyz
 
 
 紧急提醒！近期非法劫持跳转等活动频发

@@ -2,12 +2,12 @@
 ==
 ------
 ## :star: :point_right: 【大陆最新可用地址】 ：
-## https://91jq37.xyz
-## https://91jq38.xyz
-## https://91jq41.xyz
-## https://91jq42.xyz
-## https://91jq43.xyz
-## https://91jq45.xyz
+## https://91jq55.xyz
+## https://91jq56.xyz
+## https://91jq60.xyz
+## https://91jq61.xyz
+## https://91jq62.xyz
+## https://91jq63.xyz
 
 
 紧急提醒！近期非法劫持跳转等活动频发

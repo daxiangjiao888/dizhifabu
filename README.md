@@ -2,18 +2,18 @@
 ==
 ------
 ## :star: :point_right: 【大陆最新可用地址】 ：
-## https://91fby.91jq3hh.xyz
-## https://91fby.91jq8yy.xyz
-## https://91fby.91jq9gg.xyz
-## https://91fby.91jq6rr.xyz
-## https://91fby.91jq2ff.xyz
-## https://91fby.91jq1xx.xyz
+## https://91fby.91jq6hh.xyz
+## https://91fby.91jq7zz.xyz
+## https://91fby.91jq6nn.xyz
+## https://91fby.91jq2rr.xyz
+## https://91fby.91jq6ff.xyz
+## https://91fby.91jq1aa.xyz
 
 
 紧急提醒！近期非法劫持跳转等活动频发
 如果点击网址进入后发现不是本站，请立即返回并选择此处的[【防劫持通道】](https://172.247.132.230:7003/)
 
-:star: :point_right: 【地址收藏】 ：https://91jqdizhi20.com (就要激情)
+:star: :point_right: 【地址收藏】 ：https://91jqdizhi17.com (就要激情)
 ------
 :star: :point_right: 【海外地址】 ：https://iiav0.com
 ------

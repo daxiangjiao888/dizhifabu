@@ -2,12 +2,12 @@
 ==
 ------
 ## :star: :point_right: 【大陆最新可用地址】 ：
-## https://91fby.jj2997jj.link
-## https://91fby.jj6002jj.xyz
-## https://91fby.jj6002jj.link
-## https://91fby.jj8119jj.xyz
-## https://91fby.jj8119jj.link
-## https://91fby.jj9996jj.xyz
+## https://91fby.jj9996jj.link
+## https://91fby.jj9881jj.link
+## https://91fby.jj3660jj.xyz
+## https://91fby.jj3660jj.link
+## https://91fby.jj6113jj.xyz
+## https://91fby.jj6113jj.link
 
 
 紧急提醒！近期非法劫持跳转等活动频发

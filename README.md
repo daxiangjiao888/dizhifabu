@@ -2,16 +2,16 @@
 ==
 ------
 ## :star: :point_right: 【大陆最新可用地址】 ：
-## https://91fby.qq7550qq.xyz
-## https://91fby.qq7550qq.link
-## https://91fby.qq1993qq.xyz
-## https://91fby.qq1993qq.link
+## https://91fby.qq5001qq.xyz
+## https://91fby.qq5001qq.link
+## https://91fby.qq2113qq.xyz
+## https://91fby.qq2113qq.link
 
 
 紧急提醒！近期非法劫持跳转等活动频发
 如果点击网址进入后发现不是本站，请立即返回并选择此处的[【防劫持通道】](https://23.224.200.44:7011/)
 
-:star: :point_right: 【地址收藏】 ：https://jqdizhi40.com (就要激情)
+:star: :point_right: 【地址收藏】 ：https://jqdizhi39.com (就要激情)
 ------
 :star: :point_right: 【海外地址】 ：https://iiav0.com
 ------

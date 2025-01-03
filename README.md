@@ -1,17 +1,17 @@
-:bangbang::bangbang:最新可用地址:bangbang::bangbang:
+:bangbang::bangbang:91JQ就要激情 最新可用地址:bangbang::bangbang:
 ==
 ------
 ## :star: :point_right: 【大陆最新可用地址】 ：
-## https://91fby.qq6882qq.link
-## https://91fby.qq3009qq.xyz
-## https://91fby.qq3009qq.link
-## https://91fby.qq5225qq.xyz
+## https://91fby.qq5225qq.link
+## https://91fby.qq7887qq.xyz
+## https://91fby.qq7887qq.link
+## https://91fby.qq3116qq.xyz
 
 
 紧急提醒！近期非法劫持跳转等活动频发
 如果点击网址进入后发现不是本站，请立即返回并选择此处的[【防劫持通道】](https://23.224.200.44:7011/)
 
-:star: :point_right: 【地址收藏】 ：https://jqdizhi44.com (就要激情)
+:star: :point_right: 【地址收藏】 ：https://jqdizhi47.com (91JQ就要激情)
 ------
 :star: :point_right: 【海外地址】 ：https://iiav0.com
 ------
@@ -25,4 +25,4 @@
 
 :e-mail: __邮箱联系方式: dizhi@91jqx.com （以上地址无法访问请发送任意内容获取最新地址）__
 
-海外网络永久看片地址:https://91JQ.com
+海外网络永久看片地址: https://91JQ.com
